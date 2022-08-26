@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @yts1226
+- 👋 Hi, I’m @yts1226.
 - 👀 I’m interested in everything.
-- 🌱 I’m currently learning everything
+- 🌱 I’m currently learning everything.
 - 💞️ I’m looking to collaborate on everything.
 - 📫 @yts1226
 - 🤷‍♂️ ㄟ(￣.￣)ㄏ
